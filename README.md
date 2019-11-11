@@ -5,3 +5,5 @@ Can’t wait for #JNUCF 🏕🛥 Coming soon 🎆✌️
 ![Not Magenta](images/NotMagenta.png)
 
 #KryptedStoreDotCom
+
+#sponsored #ad
